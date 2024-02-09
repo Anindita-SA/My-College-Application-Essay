@@ -12,3 +12,5 @@ My desk, however, is more than just a workspace; it is a testament to the lesson
 Despite the setbacks and difficulties I've faced, my passion for creation and desire to take advantage of every opportunity keep me going. I love putting broken pieces back together, reusing broken electronics and empty cartons, and putting random pieces together to make something useful and important out of something that some people might think is useless. Restoring used items gives me the same joy as buying new ones, and the joy of self-sufficiency is a bonus.
 
 As I've gotten older, I've realized that my love for art and passion for science don't compete but rather complement one another. Whether I'm making an idol or putting together a speaker from parts of an old one, each project gives me a chance to be creative and learn more about the world around me. It's been years since my love for the arts met science, and I am grateful for it every day. 
+
+Made with love - Anindita Sarker Aloka
